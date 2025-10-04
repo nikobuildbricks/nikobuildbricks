@@ -15,7 +15,8 @@ we dont bite come talk to us
 at the moment only: austin/samuel. plays pony town!
 
 
-![Image](https://github.com/user-attachments/assets/b9df469d-41ec-47e4-b9a1-694313c2fc5f)
+![Image](https://github.com/user-attachments/assets/738ab654-77e9-4ee9-9791-2c83e4938e9d)
+
 
 <!--
 **nikobuildbricks/nikobuildbricks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
