@@ -15,6 +15,8 @@ at the moment only: austin/samuel. plays pony town!
 
 
 ![Image](https://github.com/user-attachments/assets/9a3a92f4-2620-4329-99a1-7605bd71bd1e)
+im a really heave scott kin
+i also really like pyroscott and owenscott PLEASE INT IF UR PYRO OR OWEN WHEN IM SCOTT!!!! X_^
 
 <!--
 **nikobuildbricks/nikobuildbricks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
