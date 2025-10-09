@@ -14,7 +14,7 @@ we dont bite come talk to us (atleast i dont bite - austin)
 at the moment only: austin/samuel. plays pony town!
 
 
-![Image](https://github.com/user-attachments/assets/738ab654-77e9-4ee9-9791-2c83e4938e9d)
+[![Image](https://github.com/user-attachments/assets/738ab654-77e9-4ee9-9791-2c83e4938e9d)](https://www.google.com/url?sa=i&url=https%3A%2F%2Fx.com%2Fbedrockcurse%2Fstatus%2F1974923663049916420&psig=AOvVaw1md1BFPkaaICbEbSCt9YzF&ust=1760127411629000&source=images&cd=vfe&opi=89978449&ved=0CBcQjRxqFwoTCMjQ2-z3l5ADFQAAAAAdAAAAABAE)
 
 
 <!--
