@@ -14,8 +14,9 @@ we dont bite come talk to us (atleast i dont bite - austin)
 at the moment only: austin/samuel. plays pony town!
 
 
-![Image](https://github.com/user-attachments/assets/9a3a92f4-2620-4329-99a1-7605bd71bd1e)
-im a really heave scott kin
+![Image](https://github.com/user-attachments/assets/53c59e8c-057c-49fa-8cd6-2220e826f378)
+
+im a really heavy scott kin
 
 i also really like pyroscott and owenscott PLEASE INT IF UR PYRO OR OWEN WHEN IM SCOTT!!!! X_^
 
