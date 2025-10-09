@@ -14,7 +14,7 @@ we dont bite come talk to us (atleast i dont bite - austin)
 at the moment only: austin/samuel. plays pony town!
 
 
-![Image](https://www.google.com/url?sa=i&url=https%3A%2F%2Fx.com%2Fbedrockcurse%2Fstatus%2F1974923663049916420&psig=AOvVaw1md1BFPkaaICbEbSCt9YzF&ust=1760127411629000&source=images&cd=vfe&opi=89978449&ved=0CBcQjRxqFwoTCMjQ2-z3l5ADFQAAAAAdAAAAABAE)
+![Image](https://github.com/user-attachments/assets/9a3a92f4-2620-4329-99a1-7605bd71bd1e)
 
 <!--
 **nikobuildbricks/nikobuildbricks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
