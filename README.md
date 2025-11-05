@@ -10,6 +10,7 @@ C+H, W2I, INT, DNCOPY, AND DO NOT TAKE INSPO FROM ANY OF US THAT HAVE FICT IN TH
 please look out for stuff in our names and be aware of it im not sure abt the others wanting to be touched or interacted with but it should be ok now i will be trying to write down all the people in our system that play pony town!!
 
 we dont bite come talk to us (atleast i dont bite - austin)
+
 I don't bite, but i hate talking to people that are not people I knew from source, C+H is fine I really don't care - Fluix
 
 at the moment only: austin/samuel, Fluix/Ender. plays pony town!
