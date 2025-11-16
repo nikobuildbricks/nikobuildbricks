@@ -11,9 +11,9 @@ please look out for stuff in our names and be aware of it im not sure abt the ot
 
 we dont bite come talk to us (atleast i dont bite - Zephyr)
 
-I don't bite, but i hate talking to people that are not people I knew from source, C+H is fine I really don't care - Fluix
+I don't bite, but i hate talking to people that are not people I knew from source, C+H is fine I really don't care. - Fluix
 
-I Don't Bite Unless You Want Me To, I Don't Mind Talking To People! Feel Free To C+H - Scott
+I Don't Bite Unless You Want Me To, I Don't Mind Talking To People! Feel Free To C+H. - Scott
 
 at the moment only: Zephyr, Fluix/Ender, Scott/Atlas. plays pony town!
 
@@ -22,7 +22,6 @@ at the moment only: Zephyr, Fluix/Ender, Scott/Atlas. plays pony town!
 
 im a really heavy scott kin
 
-i also really like pyroscott and owenscott PLEASE INT IF UR PYRO OR OWEN WHEN IM SCOTT!!!! X_^
 
 <!--
 **nikobuildbricks/nikobuildbricks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
